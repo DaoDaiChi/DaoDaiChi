@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello everyone, I'm Dao Dai Chi student of University of Information and Technology
+Hi guy, I'm Dao Dai Chi student of University of Information and Technology
 
 
 ## 🌐 Socials:
